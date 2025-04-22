@@ -1,2 +1,10 @@
-# CS2-WallHack
-#CS2HACK #CS2WallHack #CS2Cheats #CS2Chair
+# CS2-WallHack #CS2HACK #CS2WallHack #CS2Cheats #CS2Chair
+Run The EXE Before Opening the Games !!!
+-                              -
+-                          -
+-                      -
+-                  -
+-              -
+-          -
+-      -
+-  ------------------------------------------------------------------------------
